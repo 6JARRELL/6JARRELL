@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @6JARRELL
-- 👀 I’m interested in a lot...
+- 👀 I’m interested in many things..
 - 🌱 I’m currently learning new technology..
 - 💞️ I’m looking to collaborate on TeleHealth/Remote RN SERVICES.
 - 📫 How to reach me .
